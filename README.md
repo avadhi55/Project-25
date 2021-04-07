@@ -1,3 +1,1 @@
-# Project-25
-# by me :D
-# yeahh!!!!
+# Project 25
